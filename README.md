@@ -55,8 +55,8 @@
 
 ### 📫 Contact Me
 
-- Telegram: [@osama_dev](https://t.me/osama_dev)
-- GitHub: [Osama Ramadan](https://github.com/osama-ramadan)
+- Telegram: [@osama_dev](https://t.me/@Osama_Ramadan123)
+- GitHub: [Osama Ramadan](https://github.com/Osama756)
 
 ---
 
